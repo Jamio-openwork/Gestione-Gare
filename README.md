@@ -1,1 +1,5 @@
-# Gestione-Gare
+# Gestione-gare
+
+
+
+PER MAGGIORI INFO: 
